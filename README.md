@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @dogepopcat1
+- 👀 I’m interested in memes codeing mouse cursors
+- 🌱 I’m currently learning javascript
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to me IDK
+- link to my scratch account
+- https://scratch.mit.edu/users/popanimations3213/
+- LOL ඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞ.
